@@ -4,6 +4,6 @@ eppyisbroke.eth
 
 SOCIALS:
 
-Twitter - https://twitter.com/EppyTheThird
-OpenSea - https://Opensea.io/Epppy
-Discord (DMs Open) - Eppy#4162
+Twitter - https://twitter.com/EppyTheThird |
+OpenSea - https://Opensea.io/Epppy |
+Discord (DMs Open!) - Eppy#4162
